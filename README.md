@@ -1,1 +1,0 @@
-# weyeswet.github.io
